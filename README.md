@@ -2,6 +2,8 @@
 TikTok Recharge Coins are the platform's virtual currency, allowing users to purchase and send virtual gifts to content creators during live streams. These coins enhance the interactive experience on TikTok, supporting creators and fostering engagement. Here's an overview:
 How TikTok Coins Work
 
+GET LINK = https://allresources.xyz/tiktokcoins.html/
+
     Purchasing Coins:
         Users can buy TikTok coins through the app.
         The cost of coins varies depending on the amount you purchase (larger bundles often come with discounts).
@@ -14,7 +16,7 @@ How TikTok Coins Work
         When a creator receives gifts, they are converted into "Diamonds" in their account.
         Diamonds can then be redeemed for real money through TikTok's payout system, though TikTok retains a percentage as a platform fee.
 
-Steps to Recharge TikTok Coins https://www.tiktok.com/
+Steps to Recharge TikTok Coins
 
     Open the App:
         Go to your profile or tap on the "Live" section.
